@@ -6,7 +6,11 @@
 #### 6
 #### 7 Shut the front door
 #### 8
-#### 9 GitHub is really good 
+
+
+
+#### 9 GitHub is really awesome
+
 #### 10
 #### 11
 #### 12
