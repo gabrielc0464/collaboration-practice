@@ -8,7 +8,7 @@
 #### 8
 #### 9 GitHub is really awesome
 #### 10
-#### 11 bars like in prison
+#### 11 github has bars like in prison coolio
 #### 12
 #### 13
 #### 14
