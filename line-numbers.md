@@ -1,6 +1,6 @@
 #### 1 Mr.Mueller wuz here!
 #### 2
-#### 3 eveewestsidee was hereeererere
+#### 3 Mr. Schmueller wuz here! 
 #### 4
 #### 5
 #### 6
